@@ -1,7 +1,6 @@
 Earth Day Email Template
 CELEBRATE
 
- 
 Your Logo
  
 Why usBlogContact
